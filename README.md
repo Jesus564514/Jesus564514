@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on proyectos de github para que vean que sirvo para esto y asi poder conseguir un trabajo no sera facil pero es mejor que hacer nada 
 - 📫 How to reach me puede ser por gmail aqui les paso:mm6559707@gmail.com
 - 😄 Pronouns: Jesus o martin no mas 
-- ⚡ Fun fact: Si confian en mi creanme que sera la mejor opcion que podran tomoar y mas si me pagan un sueldo justo 
+- ⚡ Fun fact: Si confian en mi creanme que sera la mejor opcion que podran tomar y mas si me pagan un sueldo justo 
 
 <!---
 Jesus564514/Jesus564514 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
